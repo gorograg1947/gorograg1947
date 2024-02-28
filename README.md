@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @gorograg1947
-- 👀 I’m interested in coding ans cyber security
+- 👀 I’m interested in coding and cyber security
 - 🌱 I’m currently learning geofencing
 - 💞️ I’m looking to collaborate on target marketing
 - 📫 How to reach me email: gorograg@hotmail.com
